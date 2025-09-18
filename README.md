@@ -1,7 +1,8 @@
-y is making a readme so hard.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; **"An endless cycle of exorcism and consumption."**
 
+<img width="500" height="600" alt="image" src="https://github.com/user-attachments/assets/9a658f32-d07e-4f47-bc50-e0d8c5f19026" />
 
-
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; **[strwpg!](https://lucidial.straw.page)** &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ✩ ˚.⊹ ——  ᶻ 𝗓 𐰁 .ᐟ ——&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; **[ata!](https://d1ael.atabook.org/)** 
 <!--
 **d1ael/d1ael** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
