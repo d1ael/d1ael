@@ -3,6 +3,8 @@
 ![](https://komarev.com/ghpvc/?username=d1ael&color=6d0110&label=ཐི༏ཋྀ󠀮&abbreviated=true&style=plastic&base=1823912)
 <div id="text" align="center">
 
+<div id="text" align="center">
+  
 [<img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/35238037-f38d-4e2d-87f4-397b4b1593f0" />](https://d1ael.straw.page) <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/4cc593cf-f64d-4a23-9634-f32ada598f85" /> [<img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/997bcbc9-3ebd-4841-bda0-66e54d6429dd" />](https://abyssal.atabook.org)
 
 <div id="text" align="center">
